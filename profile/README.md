@@ -1,6 +1,6 @@
 ## Printhubco.tech
 
-https://www/printhubco.tech
+https://www.printhubco.tech
 
 <!--
 
